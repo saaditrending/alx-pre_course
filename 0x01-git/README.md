@@ -1,1 +1,0 @@
-naggulu seed
